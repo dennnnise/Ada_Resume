@@ -2,7 +2,7 @@
 [denniseivonne.com](denniseivonne.com)
 
 ### education  
-  bfa in photography, 2017  
+bfa in photography, 2017  
 _university of illinois at urbana-champaign_  
 gpa: 3.6  
 
@@ -30,3 +30,16 @@ spring 2011
 
 ###### photography department show  
 _link gallery_ champaign, il
+spring 2015, spring 2016, spring 2017
+
+###### vamp photography show
+_pho cafe_ champaign, il
+spring 2016
+
+###### senior photography show: charlie foxtrotted
+_ivy house_ champaign, il
+spring 2017
+
+###### class of 2017 bfa show
+_krannert art museum_ champaign, il
+spring 2017 
