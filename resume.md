@@ -2,7 +2,7 @@
 [denniseivonne.com](denniseivonne.com)
 
 ### education  
-bfa in photography, 2017  
+  bfa in photography, 2017  
 _university of illinois at urbana-champaign_  
 gpa: 3.6  
 
