@@ -1,4 +1,4 @@
-### Dennise Ivonne Ortega 
-## [denniseivonne.com](denniseivonne.com)
+# Dennise Ivonne Ortega 
+### [denniseivonne.com](denniseivonne.com)
 
 ## Education
