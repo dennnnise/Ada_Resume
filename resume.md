@@ -1,5 +1,5 @@
 # dennise ivonne ortega   
-[denniseivonne.com](denniseivonne.com) diorteg2@gmail.com  _773-870-6208_
+[denniseivonne.com](denniseivonne.com)   diorteg2@gmail.com  _773-870-6208_
 
 ### education  
 bfa in photography, 2017  
@@ -76,7 +76,7 @@ alternative sprig break _olympia, wa_
 partner with GRuB to promoto sustainable urban agriculture and build gardens for low-income families  
 
 women's resource center _champaign, il_  
-*photographed events such as the annual welcoming week at different locations around campus  
+* photographed events such as the annual welcoming week at different locations around campus  
 
 thomas paine elementary school _urbana, il_  
 * tutored enrichments units in math and reading for grades k-2, and helped faciliate classroom activities  
