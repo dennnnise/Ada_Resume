@@ -64,10 +64,25 @@ _student supervisor_ fall 2013-fall 2016
 
 oakstreet library facility  
 _student library asistant_, fall 2012  
-*in charge of book processing, shipping, and maintanence of the books  
+* in charge of book processing, shipping, and maintanence of the books  
 
 ### volunteer  
 center on contemporary art _seattle,wa_
-* docent on 
+* docent
+* photographer for special events, like opening receptions of art shows  
+
+alternative sprig break _olympia, wa_  
+* traveled with a group of students from the university of illinois to olympia, washington to 
+partner with GRuB to promoto sustainable urban agriculture and build gardens for low-income families  
+
+women's resource center _champaign, il_  
+*photographed events such as the annual welcoming week at different locations around campus  
+
+thomas paine elementary school _urbana, il_  
+* tutored enrichments units in math and reading for grades k-2, and helped faciliate classroom activities  
+
+stratton elementary school _champaign, il_  
+* created buletin boards and learning games for second graders  
+
 
 
