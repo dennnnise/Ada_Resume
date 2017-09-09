@@ -1,5 +1,5 @@
 # dennise ivonne ortega   
-[denniseivonne.com](denniseivonne.com)   diorteg2@gmail.com  _773-870-6208_
+[denniseivonne.com](denniseivonne.com)    _773-870-6208_
 
 ### education  
 bfa in photography, 2017  
