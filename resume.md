@@ -43,3 +43,10 @@ spring 2017
 ###### class of 2017 bfa show  
 _krannert art museum_ champaign, il  
 spring 2017 
+
+### experience  
+freelance photographer  
+*photograph weddings, engagement sessions, as well as portraits and projects for
+local businesses like Neutral Cycle, WPGU 107.1, and Smile Politely  
+*in charge of creative direction, editing, and processing of images 
+
