@@ -1,87 +1,87 @@
-# dennise ivonne ortega   
+# Dennise Ivonne Ortega   
 [denniseivonne.com](denniseivonne.com)    _773-870-6208_
 
-### education  
-bfa in photography, 2017  
-_university of illinois at urbana-champaign_  
-gpa: 3.6  
+### Education  
+Bfa in Photography, 2017  
+_University of Illinois at Urbana-Champaign_  
+GPA: 3.6  
 
-### skills    
-digital and analog photography  
-darkroom developing  
-printmaking  
-papermaking  
-microsoft office (word, powerpoint, excel)  
-photoshop  
-lightroom  
+### Skills    
+Digital and Analog photography  
+Darkroom Developing  
+Printmaking  
+Papermaking  
+Microsoft Office  
+Photoshop  
+Lightroom  
 inDesign  
 
-### languages  
-fluent in spanish and english
+### Languages  
+Fluent in Spanish and English
 
-### exhibitions
-###### after school matters photgraphy show  
-_museum of contemporary photography_ chicago, iL  
-spring 2010, spring 2011
+### Exhibitions
+###### After School Matters Photgraphy Show  
+_Museum of Contemporary Photography_ Chicago, IL  
+Spring 2010, Spring 2011
 
-###### the chicago publc schools art exhibition      
+###### The Chicago Publc Schools Art Exhibition      
 _us department of education_ washington, d.c
 spring 2011
 
-###### photography department show    
-_link gallery_ champaign, il  
-spring 2015, spring 2016, spring 2017
+###### Photography Department Show    
+_link gallery_ Champaign, Il  
+Spring 2015, Spring 2016, Spring 2017
 
-###### vamp photography show
-_pho cafe_ champaign, il  
+###### Vamp Photography Show
+_Pho Cafe_ Champaign, Il  
 spring 2016
 
-###### senior photography show: charlie foxtrotted  
-_ivy house_ champaign, il  
-spring 2017
+###### Senior Photography Show: Charlie Foxtrotted  
+_Ivy House_ Champaign, Il  
+Spring 2017
 
-###### class of 2017 bfa show  
-_krannert art museum_ champaign, il  
-spring 2017 
+###### Class of 2017 Bfa Show  
+_Krannert Art Museum_ Champaign, Il  
+Spring 2017 
 
 ### experience  
-vovito cafe  
-_barista_, august 2017-present 
-* prepare food and beverages providing excellent customer service
-* clean and sanitize areas   
+Vovito Cafe  
+_Barista_, August 2017-present 
+* Prepare food and beverages providing excellent customer service
+* Clean and sanitize working areas   
 
-freelance photography  
-_photographer_, spring 2011-present
-* photograph weddings, engagement sessions, as well as portraits and projects for
+Freelance Photography  
+_Photographer_, Spring 2011-present
+* Photograph weddings, engagement sessions, as well as portraits and projects for
 local businesses like Neutral Cycle, WPGU 107.1, and Smile Politely  
-* in charge of creative direction, editing, and processing of all images    
+* In charge of creative direction, editing, and processing of all images    
 
-university of illinois dining services  
-_student worker_, fall 2012-fall 2013  
-* operated kitchen equipment, served food, washed dishes, stocked, and provided excellent customer service  
-_student supervisor_ fall 2013-fall 2016  
-* responsible for training dining hall staff, communicating with upper management, and assigning duties  
+University of Illinois Dining Services  
+_Student Worker_, Fall 2012-Fall 2013  
+* Operated kitchen equipment, served food, washed dishes, stocked, and provided excellent customer service  
+_Student Supervisor_ Fall 2013-Fall 2016  
+* Responsible for training dining hall staff, communicating with upper management, and assigning duties  
 
-oakstreet library facility  
-_student library asistant_, fall 2012  
-* in charge of book processing, shipping, and maintanence of the books  
+Oakstreet Library Facility  
+_Student Library Assistant_, Fall 2012  
+* In charge of book processing, shipping, and maintanence of the books  
 
-### volunteer  
-center on contemporary art _seattle,wa_
-* docent
-* photographer for special events, like opening receptions of art shows  
+### Volunteer  
+Center on Contemporary Art _Seattle,wa_
+* Docent and provide information on exhibits 
+* Photographer for special events
 
-alternative sprig break _olympia, wa_  
-* traveled with a group of students from the university of illinois to olympia, washington to 
+Alternative Spring Break _Olympia, Wa_  
+* Traveled with a group of students from the university of illinois to olympia, washington to 
 partner with GRuB to promoto sustainable urban agriculture and build gardens for low-income families  
 
-women's resource center _champaign, il_  
-* photographed events such as the annual welcoming week at different locations around campus  
+Women's Resource Center _Champaign, Il_  
+* Photographed events such as the annual welcoming week at different locations around campus  
 
-thomas paine elementary school _urbana, il_  
+Thomas Paine Elementary School _Urbana, Il_  
 * tutored enrichments units in math and reading for grades k-2, and helped faciliate classroom activities  
 
-stratton elementary school _champaign, il_  
+Stratton Elementary School _Champaign, Il_  
 * created buletin boards and learning games for second graders  
 
 
