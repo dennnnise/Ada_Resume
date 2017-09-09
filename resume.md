@@ -1,5 +1,5 @@
 # Dennise Ivonne Ortega   
-[denniseivonne.com](denniseivonne.com)    _773-870-6208_
+[denniseivonne.com](denniseivonne.com)  | _773-870-6208_ | [diorteg2@gmail.com](mailto:diorteg2@gmail.com)
 
 ### Education  
 Bfa in Photography, 2017  
@@ -7,7 +7,7 @@ _University of Illinois at Urbana-Champaign_
 GPA: 3.6  
 
 ### Skills    
-Digital and Analog photography  
+Digital and Analog Photography  
 Darkroom Developing  
 Printmaking  
 Papermaking  
@@ -20,21 +20,21 @@ inDesign
 Fluent in Spanish and English
 
 ### Exhibitions
-###### After School Matters Photgraphy Show  
+###### After School Matters Photography Show  
 _Museum of Contemporary Photography_ Chicago, IL  
 Spring 2010, Spring 2011
 
 ###### The Chicago Publc Schools Art Exhibition      
-_us department of education_ washington, d.c
-spring 2011
+_US Department of Education_ Washington, D.C.
+Spring 2011
 
 ###### Photography Department Show    
-_link gallery_ Champaign, Il  
+_Link Gallery_ Champaign, Il  
 Spring 2015, Spring 2016, Spring 2017
 
 ###### Vamp Photography Show
 _Pho Cafe_ Champaign, Il  
-spring 2016
+Spring 2016
 
 ###### Senior Photography Show: Charlie Foxtrotted  
 _Ivy House_ Champaign, Il  
@@ -44,7 +44,7 @@ Spring 2017
 _Krannert Art Museum_ Champaign, Il  
 Spring 2017 
 
-### experience  
+### Experience  
 Vovito Cafe  
 _Barista_, August 2017-present 
 * Prepare food and beverages providing excellent customer service
@@ -67,22 +67,22 @@ _Student Library Assistant_, Fall 2012
 * In charge of book processing, shipping, and maintanence of the books  
 
 ### Volunteer  
-Center on Contemporary Art _Seattle,wa_
+Center on Contemporary Art _Seattle, Wa_
 * Docent and provide information on exhibits 
 * Photographer for special events
 
 Alternative Spring Break _Olympia, Wa_  
-* Traveled with a group of students from the university of illinois to olympia, washington to 
-partner with GRuB to promoto sustainable urban agriculture and build gardens for low-income families  
+* Traveled with a group of students from the University of Illinois to Olympia, Wa to 
+partner with GRuB to promote sustainable urban agriculture and build gardens for low-income families  
 
 Women's Resource Center _Champaign, Il_  
 * Photographed events such as the annual welcoming week at different locations around campus  
 
 Thomas Paine Elementary School _Urbana, Il_  
-* tutored enrichments units in math and reading for grades k-2, and helped faciliate classroom activities  
+* Tutored enrichments units in math and reading for grades K-2, and helped faciliate classroom activities  
 
 Stratton Elementary School _Champaign, Il_  
-* created buletin boards and learning games for second graders  
+* Created bulletin boards and learning games for second graders  
 
 
 
