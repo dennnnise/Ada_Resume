@@ -21,67 +21,67 @@ Fluent in Spanish and English
 
 ### Exhibitions
 #### After School Matters Photography Show  
-_Museum of Contemporary Photography_ Chicago, IL  
+Museum of Contemporary Photography _Chicago, IL_  
 Spring 2010, Spring 2011
 
 #### The Chicago Publc Schools Art Exhibition      
-_US Department of Education_ Washington, D.C.
+US Department of Education _Washington, D.C._
 Spring 2011
 
 #### Photography Department Show    
-_Link Gallery_ Champaign, IL    
+Link Gallery _Champaign, IL_    
 Spring 2015, Spring 2016, Spring 2017
 
 #### Vamp Photography Show
-_Pho Cafe_ Champaign, IL    
+Pho Cafe _Champaign, IL_   
 Spring 2016
 
 #### Senior Photography Show: Charlie Foxtrotted  
-_Ivy House_ Champaign, IL    
+Ivy House _Champaign, IL_    
 Spring 2017
 
 #### Class of 2017 Bfa Show  
-_Krannert Art Museum_ Champaign, IL    
+Krannert Art Museum _Champaign, IL_    
 Spring 2017 
 
 ### Experience  
-Vovito Cafe  
+#### Vovito Cafe  
 Barista, _August 2017-present_ 
 * Prepare food and beverages providing excellent customer service
 * Clean and sanitize working areas   
 
-Freelance Photography  
+#### Freelance Photography  
 Photographer, _Spring 2011-present_
 * Photograph weddings, engagement sessions, as well as portraits and projects for
 local businesses like Neutral Cycle, WPGU 107.1, and Smile Politely  
 * In charge of creative direction, editing, and processing of all images    
 
-University of Illinois Dining Services  
+#### University of Illinois Dining Services  
 Student Worker, _Fall 2012-Fall 2013_  
 * Operated kitchen equipment, served food, washed dishes, stocked, and provided excellent customer service  
 _Student Supervisor_ Fall 2013-Fall 2016  
 * Responsible for training dining hall staff, communicating with upper management, and assigning duties  
 
-Oakstreet Library Facility  
+#### Oakstreet Library Facility  
 Student Library Assistant, _Fall 2012_  
 * In charge of book processing, shipping, and maintanence of the books  
 
 ### Volunteer  
-Center on Contemporary Art _Seattle, Wa_
+#### Center on Contemporary Art _Seattle, Wa_
 * Docent and provide information on exhibits 
 * Photographer for special events
 
-Alternative Spring Break _Olympia, Wa_  
+#### Alternative Spring Break _Olympia, Wa_  
 * Traveled with a group of students from the University of Illinois to Olympia, Wa to 
 partner with GRuB to promote sustainable urban agriculture and build gardens for low-income families  
 
-Women's Resource Center _Champaign, Il_  
+#### Women's Resource Center _Champaign, Il_  
 * Photographed events such as the annual welcoming week at different locations around campus  
 
-Thomas Paine Elementary School _Urbana, Il_  
+#### Thomas Paine Elementary School _Urbana, Il_  
 * Tutored enrichments units in math and reading for grades K-2, and helped faciliate classroom activities  
 
-Stratton Elementary School _Champaign, Il_  
+#### Stratton Elementary School _Champaign, Il_  
 * Created bulletin boards and learning games for second graders  
 
 
