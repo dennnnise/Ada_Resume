@@ -1,5 +1,5 @@
 # Dennise Ivonne Ortega   
-[denniseivonne.com](wwww.denniseivonne.com)  | _773-870-6208_ | [diorteg2@gmail.com](mailto:diorteg2@gmail.com)
+[denniseivonne.com](https://denniseivonne.com/)  | _773-870-6208_ | [diorteg2@gmail.com](mailto:diorteg2@gmail.com)
 
 ### Education  
 Bfa in Photography, 2017  
