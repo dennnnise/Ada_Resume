@@ -20,27 +20,27 @@ inDesign
 Fluent in Spanish and English
 
 ### Exhibitions
-###### After School Matters Photography Show  
+#### After School Matters Photography Show  
 _Museum of Contemporary Photography_ Chicago, IL  
 Spring 2010, Spring 2011
 
-###### The Chicago Publc Schools Art Exhibition      
+#### The Chicago Publc Schools Art Exhibition      
 _US Department of Education_ Washington, D.C.
 Spring 2011
 
-###### Photography Department Show    
+#### Photography Department Show    
 _Link Gallery_ Champaign, Il  
 Spring 2015, Spring 2016, Spring 2017
 
-###### Vamp Photography Show
+#### Vamp Photography Show
 _Pho Cafe_ Champaign, Il  
 Spring 2016
 
-###### Senior Photography Show: Charlie Foxtrotted  
+#### Senior Photography Show: Charlie Foxtrotted  
 _Ivy House_ Champaign, Il  
 Spring 2017
 
-###### Class of 2017 Bfa Show  
+#### Class of 2017 Bfa Show  
 _Krannert Art Museum_ Champaign, Il  
 Spring 2017 
 
