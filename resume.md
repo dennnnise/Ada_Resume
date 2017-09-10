@@ -44,25 +44,25 @@ Spring 2017
 
 ### Experience  
 #### Vovito Cafe  
-##### Barista, _August 2017-present_  
+Barista, _August 2017-present_  
 * Prepare food and beverages and provide excellent customer service
 * Clean and sanitize working areas
 
 #### Freelance Photography  
-##### Photographer, _Spring 2011-present_  
+Photographer, _Spring 2011-present_  
 * Photograph weddings, engagement sessions and portraits, as well as special projects for
 local businesses including Neutral Cycle, WPGU 107.1 and Smile Politely  
 * Responsible for creative direction, editing, and processing of all images    
 
 #### University of Illinois Dining Services  
-##### Student Worker, _Fall 2012-Fall 2013_  
+Student Worker, _Fall 2012-Fall 2013_  
 * Operated kitchen equipment, served food, washed dishes, stocked supplies and provided excellent customer service  
 
-##### Student Supervisor, _Fall 2013-Fall 2016_  
+Student Supervisor, _Fall 2013-Fall 2016_  
 * Responsible for training dining hall staff, communicating with upper management and assigning duties  
 
 #### Oakstreet Library Facility  
-##### Student Library Assistant, _Fall 2012_  
+Student Library Assistant, _Fall 2012_  
 * Responsible for book maintenance, processing and shipping  
 
 ### Volunteer  
