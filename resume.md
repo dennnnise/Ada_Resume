@@ -29,19 +29,19 @@ _US Department of Education_ Washington, D.C.
 Spring 2011
 
 #### Photography Department Show    
-_Link Gallery_ Champaign, Il  
+_Link Gallery_ Champaign, IL    
 Spring 2015, Spring 2016, Spring 2017
 
 #### Vamp Photography Show
-_Pho Cafe_ Champaign, Il  
+_Pho Cafe_ Champaign, IL    
 Spring 2016
 
 #### Senior Photography Show: Charlie Foxtrotted  
-_Ivy House_ Champaign, Il  
+_Ivy House_ Champaign, IL    
 Spring 2017
 
 #### Class of 2017 Bfa Show  
-_Krannert Art Museum_ Champaign, Il  
+_Krannert Art Museum_ Champaign, IL    
 Spring 2017 
 
 ### Experience  
