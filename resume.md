@@ -66,24 +66,18 @@ Student Library Assistant, _Fall 2012_
 
 ### Volunteer  
 #### Center on Contemporary Art, _Seattle, Wa_  
-Event Photography Lead, _August 2017-present_  
 * Photograph special events and coordinate event photography coverage with a team of volunteer photographers  
-Docent, _August 2017-present_  
 * Host gallery and provide information on exhibits  
 
 #### Alternative Spring Break, _Olympia, Wa_  
-_May 2015_  
 * Traveled with a group of students from the University of Illinois to Olympia, Wa  
 * Partnered with local orgnization (GRuB) to promote sustainable urban agriculture and build community gardens for low-income families    
 
 #### Women's Resource Center, _Champaign, Il_  
-Photographer, _Fall 2014_  
 * Photographed events such as the annual Welcoming Week at various locations around campus  
 
 #### Thomas Paine Elementary School, _Urbana, Il_  
-Tutor, _Fall 2014-Spring 2015_  
 * Tutored units in math and reading and facilitated classroom activities for grades K-2  
 
 #### Stratton Elementary School, _Champaign, Il_  
-Tutor, _Fall 2013_  
 * Created classroom bulletin boards and learning games for second graders  
