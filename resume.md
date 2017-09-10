@@ -23,7 +23,7 @@ Museum of Contemporary Photography, _Chicago, IL_
 Spring 2010, Spring 2011
 
 #### The Chicago Public Schools Art Exhibition      
-US Department of Education, _Washington, D.C._
+US Department of Education, _Washington, D.C._  
 Spring 2011
 
 #### Photography Department Show    
