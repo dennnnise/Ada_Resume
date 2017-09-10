@@ -65,19 +65,19 @@ Student Library Assistant, _Fall 2012_
 * Responsible for book maintenance, processing and shipping  
 
 ### Volunteer  
-#### Center on Contemporary Art, _Seattle, Wa_  
+#### Center on Contemporary Art _Seattle, WA_  
 * Photograph special events and coordinate event photography coverage with a team of volunteer photographers  
 * Host gallery and provide information on exhibits  
 
-#### Alternative Spring Break, _Olympia, Wa_  
-* Traveled with a group of students from the University of Illinois to Olympia, Wa  
+#### Alternative Spring Break _Olympia, WA_  
+* Traveled with a group of students from the University of Illinois to Olympia, WA   
 * Partnered with local orgnization (GRuB) to promote sustainable urban agriculture and build community gardens for low-income families    
 
-#### Women's Resource Center, _Champaign, Il_  
+#### Women's Resource Center _Champaign, Il_  
 * Photographed events such as the annual Welcoming Week at various locations around campus  
 
-#### Thomas Paine Elementary School, _Urbana, Il_  
+#### Thomas Paine Elementary School _Urbana, Il_  
 * Tutored units in math and reading and facilitated classroom activities for grades K-2  
 
-#### Stratton Elementary School, _Champaign, Il_  
+#### Stratton Elementary School _Champaign, Il_  
 * Created classroom bulletin boards and learning games for second graders  
