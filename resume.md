@@ -57,6 +57,7 @@ local businesses including Neutral Cycle, WPGU 107.1, and Smile Politely
 #### University of Illinois Dining Services  
 Student Worker, _Fall 2012-Fall 2013_  
 * Operated kitchen equipment, served food, washed dishes, stocked supplies and provided excellent customer service  
+
 Student Supervisor, _Fall 2013-Fall 2016_  
 * Responsible for training dining hall staff, communicating with upper management and assigning duties  
 
