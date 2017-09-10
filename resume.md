@@ -48,7 +48,7 @@ Barista, _August 2017-present_
 * Prepare food and beverages and provide excellent customer service
 * Clean and sanitize working areas
 
-#### Freelance Photography, _Chicago,IL_   
+#### Freelance Photography, _Chicago, IL_   
 Photographer, _Spring 2011-present_  
 * Photograph weddings, engagement sessions and portraits, as well as special projects for
 local businesses including Neutral Cycle, WPGU 107.1 and Smile Politely  
@@ -61,7 +61,7 @@ Student Worker, _Fall 2012-Fall 2013_
 Student Supervisor, _Fall 2013-Fall 2016_  
 * Responsible for training dining hall staff, communicating with upper management and assigning duties  
 
-#### Oakstreet Library Facility, _Champaign,IL_
+#### Oakstreet Library Facility, _Champaign, IL_
 Student Library Assistant, _Fall 2012_  
 * Responsible for book maintenance, processing and shipping  
 
