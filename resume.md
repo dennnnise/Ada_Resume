@@ -27,7 +27,7 @@ US Department of Education, _Washington, D.C._
 Spring 2011
 
 #### Photography Department Show    
-Link Gallery, _Champaign, IL_    
+Link Gallery, _Champaign, IL_  
 Spring 2015, Spring 2016, Spring 2017
 
 #### Vamp Photography Show
@@ -44,12 +44,12 @@ Spring 2017
 
 ### Experience  
 #### Vovito Cafe  
-##### Barista, _August 2017-present_ 
+##### Barista, _August 2017-present_  
 * Prepare food and beverages and provide excellent customer service
 * Clean and sanitize working areas
 
 #### Freelance Photography  
-##### Photographer, _Spring 2011-present_
+##### Photographer, _Spring 2011-present_  
 * Photograph weddings, engagement sessions and portraits, as well as special projects for
 local businesses including Neutral Cycle, WPGU 107.1 and Smile Politely  
 * Responsible for creative direction, editing, and processing of all images    
